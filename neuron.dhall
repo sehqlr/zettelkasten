@@ -1,3 +1,4 @@
-{ siteTitle = "Harriet Star and the Space Conflict"
+{ siteTitle = "sehqlr's zettelkasten"
 , theme = "black"
+, plugins = [ "neuronignore", "links", "tags", "uptree", "dirtree" ]
 }
