@@ -1,9 +1,10 @@
-# Neuron Template
+# Harriet Starr and the Space Conflict
 
-You are viewing a template site, generated from [neuron-template](https://github.com/srid/neuron-template) and published by [neuron](https://neuron.zettel.page/). [GitHub Pages](https://pages.github.com/) is used to automatically publish this site every time the underlying Git repository gets updated.
+## Rendered Versions
+[The PDF](./static/harriet-starr.pdf)
 
-Get started by reading [[README]]#.
+[The EPUB](./static/harriet-starr.epub)
 
-Other pages on this zettelkasten:
+## Scenes
 
-- [[faq]]#
+[[[z:zettels?tag=scene/*]]]
