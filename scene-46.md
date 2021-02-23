@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 They were getting high when the conversation just started about the vast
 universe, and what even is morality, and about the terraforming unit,
 and how it was so strange that all the spells that were inscribed in the

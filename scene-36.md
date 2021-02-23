@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 One thing about both star wars and harry potter is the beasts. Both
 worlds have them. The ones from star wars are more obviously monsters
 that don’t need any context, whereas the beasts from Harry Potter are

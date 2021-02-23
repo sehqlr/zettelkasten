@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Well, this was it. This was the moment that hey were all waiting for.
 She just had to jump towards the lever, pull it down, and grab onto the
 portkey when it apparated in. There was no way that she would have

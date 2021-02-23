@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There were no ninjas anywhere in the place, at least according to
 initial scans, but then again, you never know. They were sneaky, future
 ninjas. For one thing, they were actually wizards most of the time, so

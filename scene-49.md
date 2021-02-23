@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Harriet lightly touched the surgical scars on Q’nall’s forehead. “Does
 that, still hurt?”
 

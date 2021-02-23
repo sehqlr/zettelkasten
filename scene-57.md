@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Harriet was starting to get worried about her exams coming up by the end
 of the year. She was not feeling well prepared. She seemed well
 prepared, what, three years ago was it? It must have been, that was the

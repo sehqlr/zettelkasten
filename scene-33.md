@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The laser wand is a fascinating piece of magitechnology, if you were
 interested in learning about such things. The way that it worked was
 similar to how ancient wands worked, except instead of wood carved from

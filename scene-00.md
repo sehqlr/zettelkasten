@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Harriet Starr was working on a potion. For Alchemistry IV, naturally.
 There was no way that she was going to get top marks for this job. It
 was green, but it was supposed to be more of a teal color. Why does she

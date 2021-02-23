@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 I think that I want to talk about the possible sex scene in this story.
 I'm not sure if it's going to be included in the final cut, or even in
 any cut of the story, but I know that in the story, there is room for a

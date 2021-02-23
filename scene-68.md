@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There was a time when she would have gave anything to play football
 professionally, but now that wasn't going to happen, was it? Maybe the
 thing to do is to just accept the fact that life doesn't always go where

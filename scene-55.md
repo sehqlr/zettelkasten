@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Anyway, so I was talking about the beginning and the end of the story,
  where does Q'nall enter into it? I know that he is with the
 Rebellion pretty much the whole time that he's in the main story, but

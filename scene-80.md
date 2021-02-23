@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There was no way that Harriet was going to be late to class again. This
 would be the third time this month, and that usually means something to
 someone in charge. The three strikes rule was older than the Empire

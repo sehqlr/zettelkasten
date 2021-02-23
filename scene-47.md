@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 This wasn’t the way that it was supposed to go. The footballs were
 bouncing around as much as they were expected to; in fact, they were
 doing even better than expected. They kept multiplying and then bouncing

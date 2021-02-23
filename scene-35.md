@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There wasn’t much time, after the station’s mode was changed from
 fireball to terraforming. The energy in the combustion chamber was still
 building up. You could tell, with that kind of magical power build up.

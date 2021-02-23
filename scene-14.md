@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- project/harriet-starr
+---
+
 So, how do they get magical space rockets into space? Well, first we
 have to talk about when they figured out how to mix magic and rocketry.
 The problems in rocketry were numerous, and magic was used to fix each

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, we thought that we were alone here? What do you want, Captain?
 
 We need to start to train for our attack runs on Project Fireball. You

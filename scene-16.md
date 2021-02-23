@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Space shovels are stupid, Harriet decided, definitively. Why did she
 need to use one? Oh right, to dig out trenches for the upcoming battle.
 Space shovels. They should be able to dig themselves, right? Yes,

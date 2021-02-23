@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Harriet had so many different classes, that she couldn’t always figure
 out what her schedule was. Actually, that’s not true, I have no idea
 what her schedule is but in universe, she would know. So I need to

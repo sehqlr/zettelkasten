@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, let me tell you about the school that Harriet goes to. It is called
 the Calvary School for Intuitiionists, and it turns out to be a school
 for mages that have the Intuition, which is the equivalent of the Force

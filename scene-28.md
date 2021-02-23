@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Space magic is something that I'd like to talk about now. I wonder what
 all the implications are that I could explore with space magic. I know
 that I really shouldn't try to explain everything, since that would be

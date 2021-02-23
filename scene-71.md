@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 I think that the second book in this trilogy would be something like, I
 don't know, a direct military threat, kinda like in Empire Strikes Back,
 where the Rebellion has to struggle a bit and a lot of people die. The

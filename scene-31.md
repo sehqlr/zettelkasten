@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Speaking of trying, should the romance between Harriet and Q'nall be
 really awkward at first, or should it be like really good for them the
 whole time. IF they are trigger each other's Intuition about each other,

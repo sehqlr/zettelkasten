@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 This is going to be yet another dispatch from the holonews desk, Q'nall
 told himself. This was just going to be just another dispatch. There was
 no telling how long that it was going to be before another one. News has

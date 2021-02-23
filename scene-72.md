@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 That war against the station was brutal. Turns out that Project Fireball
 is a killing machine designed by sadists. Dark wizards manned the battle
 stations, as they had been trained in ship combat by the Armada forces.

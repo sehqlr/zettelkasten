@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 I'm going to win, I'm going to win, I'm going to win, I'm going to win,
 I'm going to win, Harriet kept saying to herself while she was prepping
 for the big game. I wonder if the visiting team is nice, she thought to

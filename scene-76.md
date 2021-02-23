@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The war was never started. But, from another perspective, the war was
 never over. For someone like the Empress, she had the right vision. She
 new about wars, and how they never ended. There would always be wars.

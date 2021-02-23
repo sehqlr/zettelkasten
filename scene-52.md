@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The real shame of it all was that the rock n roll of the past was
 largely forgotten. People got tired of recordings once there was a
 critical mass of them. People started to demand live recordings for the

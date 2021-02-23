@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, there was something going on with Tobial that no one could figure
 out. Why was he defecting exactly? He didn’t seem that forth coming to
 anyone else in the gang, he just seemed determined to take information

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The school was something to behold, while all the while it was pretty
 ugly. It was standard Imperial space station architecture, with the
 cylindrical stick in the donut, as described elsewhere in this book. The

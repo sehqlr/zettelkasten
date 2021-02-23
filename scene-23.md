@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 What is Harriet's favorite coffee drink? I think black coffee without
 anything in it, because she's like that, and she will choke down a bad
 coffee without complaining because coffee isn't supposed to be any good.

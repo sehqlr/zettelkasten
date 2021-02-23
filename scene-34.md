@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, that's how the story begins, but how does it end? With Harriet
 standing on the observation deck of a ship staring at a milky way
 galaxy? I don't think I'll be that much of a thief. I think that I'll

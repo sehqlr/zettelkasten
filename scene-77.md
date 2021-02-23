@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 I wonder if I could bother you for just a moment, the man said to the
 other man. He was holding a giant hydrospanner.
 

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The new plan was diabolical, even more so than the original diabolical
 plan. Who was the dark wizard that came up with this plan to the
 Empress? They should be commended, or killed, or possibly both.

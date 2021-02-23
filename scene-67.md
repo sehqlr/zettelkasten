@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The space battle was raging through space, dangerous spells wizzing back
 and forth across the deep darkness of space. Not even the stars were
 outshining the magic energy taking place here, and even though there is

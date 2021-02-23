@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, what else does Harriet care about? I started doing a list a while
 back, but I don’t remember where it is so I’m going to just wing it.
 Football, obviously, and that music duo. And professionalism. But she

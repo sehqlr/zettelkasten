@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Tobial was worried, always worried, but this was about at the limit of
 what he was capable of feeling. This was worse than that time his
 younger child stepped on a sharp tack that was left in the ground

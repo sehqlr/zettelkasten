@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Man, that is really tedious to try to write out how I feel about
 something instead of having a character voice speaking though me. But
 then again, there is the fact that I’ve been going at this for house and

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, I just realized, what does Q'nall want to really do with his life,
 at least what did he want to do before he became a freedom fighter? I
 think that he wanted to become a critic, someone who did cultural

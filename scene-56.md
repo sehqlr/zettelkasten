@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 So, there are the Sith, are there any other organizations that the
 readers should know about? Well, if there are ninjas, there have to be
 pirates, right? So, what kind of piracy happens in space. Space pirates,

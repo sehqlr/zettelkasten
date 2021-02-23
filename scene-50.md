@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 When we get home, we have a lot to talk about, Jem said to Harriet after
 their adventure. Harriet, as mentioned somewhere else in the manuscript,
 goes to live with Jem and family after the adventure is over, and thus

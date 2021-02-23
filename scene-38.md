@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There’s one thing that they got right in the future: toilets. There were
 no gendered toilets in the whole of the Empire. You went in, did your
 business, and left. After washing your hands of course. And there laser

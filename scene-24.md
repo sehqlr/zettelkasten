@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The GRQ-117 was the most impressive ship that Q’nall had ever seen. It
 was a thing of derelict beauty, industrial grace, and some of dumpster
 chic as well. Whatever you said about the GRQ, it was a good ship with

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 It was while they were fixing waste extractors that Tobial and Grynt
 were first discussing the terraforming circuits, when they discover some
 weird happenings. Then they start on their quest to get more

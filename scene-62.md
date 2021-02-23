@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Tobial was nervous. He was looking at the core of Project Fireball. The
 actual core. Not a model, not a line drawing, the actual thing. He would
 destroy it right now if he thought of a way of doing it without killing

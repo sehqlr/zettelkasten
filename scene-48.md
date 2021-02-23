@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 Wasn’t there a point in these word wars that I was talking about the
 Sith? Yeah, I don’t have time to look back right this moment, but I do
 distinctly remembering talking about them in a rather humorous way. Or

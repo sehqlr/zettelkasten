@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 That afternoon was football practice and Harriet took practice
 seriously. She took everything football seriously. As far as she was
 concerned, zero-g football was the greatest cultural institution that

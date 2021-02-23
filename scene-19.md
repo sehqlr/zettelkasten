@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 You’re probably wondering how in the world that the magic users of Harry
 Potter figured out how to do space travel, and create such a thing as a
 galactic empire. Well, lemme tell you, it wasn’t easy. First, they had

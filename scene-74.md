@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 I am starting to get some kind of backache sitting in this chair again.
 I really should get the better chair from the basement. In some ways,
 I’m starting to think that it be better to bring that whole desk and

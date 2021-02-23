@@ -1,3 +1,9 @@
+---
+tags:
+- writing/fiction
+- harriet-starr
+---
+
 well, well, well, well, well well well well well well well well! The
 ninjas all said before they attacked. They were fearsome to behold. The
 Sith don’t mess around when it comes to intimidation. They had skull

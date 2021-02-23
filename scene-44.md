@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 And so we decided to carry on, with the mission. He was going to carry
 on with the mission, even though his partner in crime was killed.
 Especially that part. Could he maybe think about it some more? Think

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 The Rebellion’s flagship, the Alien Friendship, was losing atmosphere
 and fast. It had no power, and they were all kinds of other stuff wrong
 with it. It was not the place to be right now, so Harriet, Jem, and

@@ -1,3 +1,9 @@
+---
+tags:
+- fiction/novels
+- harriet-starr
+---
+
 There was nothing greater than a food replicator that actually worked.
 The way that it worked is that you put in a credit chip, and then it
 would listen to your food order and magic it into existence. You then
