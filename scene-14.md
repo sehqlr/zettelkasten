@@ -1,7 +1,7 @@
 ---
 tags:
 - fiction/novels
-- project/harriet-starr
+- harriet-starr
 ---
 
 So, how do they get magical space rockets into space? Well, first we
