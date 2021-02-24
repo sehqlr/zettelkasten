@@ -2,8 +2,8 @@
 title: Gyshy
 date: 2020-11-12T17:50
 tags:
-- character/imperial
+- harriet-starr
 
 ---
 
-Eenee's twin sister
+Eenee's twin sister, Imperialist
