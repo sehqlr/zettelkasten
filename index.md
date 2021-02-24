@@ -6,4 +6,4 @@ I'm making a transition from having my writings being in a blog format, see [[99
 
 ## Indexes
 
-[[113a7ff2]]
+[[[113a7ff2]]]
