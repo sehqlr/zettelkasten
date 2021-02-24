@@ -1,6 +1,6 @@
 ---
 tags:
-- writing/fiction
+- fiction/novels
 - harriet-starr
 ---
 
