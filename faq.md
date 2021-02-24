@@ -2,7 +2,7 @@
 tags: [other]
 ---
 
-# FAQ
+# Github Pages FAQ
 
 How long does it take for the site to update?
 :  The [GitHub Actions](https://github.com/features/actions) build itself takes about ~25 seconds to run. It is generally expected for your site to update around that duration, and take no more than a minute.

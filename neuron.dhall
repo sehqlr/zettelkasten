@@ -1,4 +1,4 @@
 { siteTitle = "sehqlr's zettelkasten"
 , theme = "black"
-, plugins = [ "neuronignore", "links", "tags", "uptree", "dirtree" ]
+, plugins = [ "neuronignore", "links", "tags", "uptree" ]
 }
