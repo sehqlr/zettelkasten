@@ -1,7 +1,7 @@
 ---
 tags:
 - fiction/novels
-- harriett-starr
+- harriet-starr
 ---
 
 Fight the Grey Mawt was an old war cry of the Rebellion. They were
