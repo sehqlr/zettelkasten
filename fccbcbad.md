@@ -1,10 +1,8 @@
 ---
 date: '2020-11-24T13:32'
 tags:
-- writing/fragment
-- writing/story
 - age/university
-- writing/homework
+- homework
 ---
 
 # The Game
