@@ -1,5 +1,4 @@
 ---
-date: '2020-11-23T14:44'
 tags:
 - fragment
 - essay

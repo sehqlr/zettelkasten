@@ -1,6 +1,7 @@
 ---
 tags:
 - 'theodore-melliah'
+- notes
 - age/highschool
 ---
 

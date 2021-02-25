@@ -1,5 +1,4 @@
 ---
-date: '2020-11-23T14:58'
 tags:
 - fragment
 - fiction/story
