@@ -6,5 +6,5 @@ tags:
 
 # Theo Melliah
 
-[[[z:zettels?tag=theo-melliah]]]
+[[[z:zettels?tag=theodore-melliah]]]
 
