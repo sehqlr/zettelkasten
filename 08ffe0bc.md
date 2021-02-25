@@ -1,15 +1,13 @@
 ---
-date: '2020-11-23T16:00'
 tags:
-- writing/fragment
+- fragment
+- essays
 - age/highschool
 ---
 
-Animal Farm Symbolism
-=====================
+# Animal Farm Symbolism
 
-NOTE from Monday 30 December 2019
----------------------------------
+## NOTE from Monday 30 December 2019
 
 This writeup is very much based on how American history and civics were
 taught in my primary and secondary education, and does not take into

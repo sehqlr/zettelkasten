@@ -1,7 +1,8 @@
 ---
 date: '2020-11-24T13:57'
 tags:
-- writing/novels/jilro
+- jilro
+- scene
 - age/highschool
 ---
 

@@ -1,7 +1,7 @@
 ---
-date: '2020-11-24T13:59'
 tags:
-- 'writing/novels/theodore-melliah'
+- scene
+- 'theodore-melliah'
 - age/highschool
 ---
 

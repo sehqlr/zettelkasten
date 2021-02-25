@@ -1,9 +1,8 @@
 ---
-date: '2020-11-22T18:25'
 tags:
 - cv/experience
-- food
-title: Haveli
+- industry/food
+title: The Indian Restaurant
 ---
 
 Facts

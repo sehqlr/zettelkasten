@@ -1,7 +1,7 @@
 ---
-date: '2020-11-23T18:12'
 tags:
-- writing/homework
+- homework
+- lists
 - age/highschool
 title: Composing and Essays Super
 ---

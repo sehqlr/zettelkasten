@@ -3,6 +3,7 @@ date: '2020-11-24T13:32'
 tags:
 - age/university
 - homework
+- fiction/story
 ---
 
 # The Game

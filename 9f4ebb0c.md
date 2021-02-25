@@ -1,7 +1,6 @@
 ---
-date: '2020-11-24T13:36'
 tags:
-- writing/story
+- fiction/story
 - 'age/year-of-desperation'
 ---
 
