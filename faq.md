@@ -1,5 +1,5 @@
 ---
-tags: [other]
+tags: [meta]
 ---
 
 # Github Pages FAQ
