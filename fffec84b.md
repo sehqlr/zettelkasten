@@ -1,7 +1,7 @@
 ---
 date: '2020-11-23T14:58'
 tags:
-- writing/fragment
+- fragment
 - adulthood
 ---
 
@@ -27,4 +27,4 @@ When the first interlife war was declared, the experiment was deemed a
 worthy failure, and the end of the first war was the end of the universe
 it existed in.
 
-Maybe next time this happens, it’d turn out differently?45555555555
+Maybe next time this happens, it’d turn out differently?
