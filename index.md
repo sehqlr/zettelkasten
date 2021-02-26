@@ -6,11 +6,19 @@ I'm making a transition from having my writings being in a blog format, see [[99
 
 [Neuron](https://neuron.zettel.page) is still under active development, and I'm a sponsor for the [GitHub Project](https://github.com/srid/neuron). If srid meets his funding goal, then he will open-source [Cerveau](https://cerveau.app), which is what I'm using for some edits of this zettelkasten.
 
-This wiki is currently under development as well. I had a lot of content that I added here without the intention of making it public, or centralized. I'm working on making the site more navigable. For instance, I plan on having an entire resume system embedded in this wiki, so that's going to take some time.
+This wiki is currently under development as well. I had a lot of content that I added here without the intention of making it public, or centralized. I'm working on making the site more navigable.
+
+## Blog Posts
+
+(more will appear here as I migrate my WordPress site)
+
+[[z:zettels?tag=blog&timeline]]
 
 ## Indexes
 
-[[113a7ff2]]#
+[[113a7ff2]]
+
+[[c5420cb4]]
 
 
 
