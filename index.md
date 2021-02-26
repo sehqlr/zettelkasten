@@ -10,9 +10,9 @@ This wiki is currently under development as well. I had a lot of content that I 
 
 ## Indexes
 
-[[113a7ff2]]#
+[[[113a7ff2]]]
 
-[[c5420cb4]]#
+[[[c5420cb4]]]
 
 
 
