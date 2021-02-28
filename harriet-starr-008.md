@@ -4,45 +4,48 @@ tags:
 - harriet-starr
 ---
 
-So, there was something going on with Tobial that no one could figure
-out. Why was he defecting exactly? He didn’t seem that forth coming to
-anyone else in the gang, he just seemed determined to take information
-to the Rebellion, and that’s it. He was a defector that didn’t really
-like the side that he was going to, but he had to. What they don’t know
-is that he definitely has attitudes about the Rebellion that are
-unfavorable: they are just homeless, family-less people without jobs to
-do. The Rebellion is painted as the cause of the desperate and the lazy,
-not the righteous and true. But Tobial was going to have to let go of
-some of those preconceptions if he is to survive his defection. It’s not
-like he can just go back to his old life, he was joining a new one. His
-family might not understand right now, but some day they will. And that
-was all that mattered.
+“So, here we are, in the middle of burning wreckage” Jem started to
+panic. “How do you rebels deal with this?”
 
-He had written a coded message to each of his family members, to be read
-upon his death They each explained that he was sorry that he had to
-leave them and get killed, but he loved every one of them to the end of
-the universe, and that this action that he was taking was for their
-benefit, and not only for the benefit of the empire or the Rebellion. it
-was going to be a long road to recovery for them. Especially for someone
-who had proven loyal to the empire again and again, was it all a lie,
-the whole time? There was going to be a reckoning, but he didn’t care,
-he knew that he was right, dammit. He was right, and history was going
-to be on his side. He was going to be a hero of the empire in a thousand
-years. He even dreamed of being printed on some money some day Just
-picture it, his flat, uninteresting face on the 10 credit bill! hey,
-that should be something to see when it happens, considering that they
-only put the Empress onto the money these days. Maybe he could get like
-a stamp of something, do they still do stamps in the future? Of course,
-you must pay for postage, and in the future, the stamp has enough magic
-stored in it to perform some financial calculations to make sure that
-there were enough stamps on any package, which saves on postal scales.
+“I’m pretty new, so I have no idea how rebels deal with this. They don’t
+have rebel school you know.” Harriet said saltily.
 
-Well, I’m almost at a 10k words for this text file, which means that my
-daily total is almost 10k words, which would be amazing to do, I’m going
-to be impressed with myself if I get to that point, that would really be
-something wouldn’t it?
+“Wait, where are my parents? Shouldn’t they be here? I can see your
+parents, but I can’t find mine. What I felt in space, it can’t be true,
+it can’t be true!”
 
-Well, lets’ keep going. So, there is postage in the future, what about
-owls? I don’t think that anyone uses owls to send messages, they use the
-holonet to send messages. You just put your letter in the slot and it
-gets magicked into the other persons slot.
+And so, this scene is where we find out definitely that Harriet’s
+parents have been killed by Project Fireball as the ship that they were
+on got blown from the sky in a real bad way. The reason why they were
+all on that ship? I have no idea, I’ll have to think of it either now or
+later, and I’m busy right now telling you a story and having back
+trouble. Anyway, so this death scene is sad, probably the most emotional
+that the book will get. I’m going to have to really dig deep and be
+vulnerable for this, but I’m not in that state of mind right now and I
+can’t think of a way of digging that deeply and doing wars at the same
+time. That might have to be a scene that get’s written in like the
+second draft or something. Like the sex scenes. But I’m not sure there
+should be any sex scenes. but then again, I’m taking fan fiction as an
+inspiration and we all know that fan fiction involves really weird sex
+scenes that don’t make any sense and aren’t really that sexy, but what
+can you do? This is Harry Potter and Star Wars mashed up, and they don’t
+deal with sex hardly at all. Then again, they don’t deal with trans
+positively either, so we’ll see. We’ll have just to wait and see.
+
+Meanwhile, back and the death star, the way that this works is that we
+start the story with Tobial being a lowly engineer, working on something
+that raises his suspicious nature to the fore and gives him a first
+glimpse into what the station does. His realization at what it does is
+when we discover what it does and he defects. He’s going to be cut in a
+bunch into the early story, then when he joins the alliance he like
+become a big deal general because of his information and the upshot is
+that his family ends up needing to be saved by him and he rescues them
+and that is how his whole family comes into the rebellion, because the
+Empress wants to make an example of him just like he thought was going
+to happen, but hey, he’s able to get everybody out, well, maybe someone
+dies, but I haven’t decided yet.
+
+Anyway, what happens to Eenee is that she doesn’t reconcile with her
+sister twin at all, and when her twin get’s injured, she refuses to get
+rescued, so it’s like not everyone is willing to come over to the
+rebellion, no matter how bad it gets for them.
