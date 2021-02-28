@@ -4,105 +4,84 @@ tags:
 - harriet-starr
 ---
 
-Harriet Starr was working on a potion. For Alchemistry IV, naturally.
-There was no way that she was going to get top marks for this job. It
-was green, but it was supposed to be more of a teal color. Why does she
-need to know how to make potions anyway? This whole recipe was a
-complete joke anyway. Brewing the leaves of the Trekalian tea bush with
-ginger and bowels of frog is really supposed to be a way to cure the
-common cold? Shouldn’t this be part of basic medical training, not part
-of normal school? When would she need this? She wasn’t planning on
-getting sick.
+There was a particularly strange shop in the school’s central ring
+corridor. You might call it a promenade, but I haven’t decided to do
+that yet. Anyway, in the central ring corridor there was a shop that was
+zombie themed. It was called “Zombie Shanks” and they sold novelty items
+to the students and staff at the school. They were not in good shape,
+business wise, with the loss of popularity of zombies in recent years.
+It always came in waves: one generation would be obsessed, then the next
+would be tired and over it. This wasn’t a good year at all for the
+store. Rumor had it that it could end up being closed.
 
-She looked at the instructions again. Oh! She turned up the temperature
-on the burner another notch. The mixture became turquoise. She looked at
-the ebook again. The florid writing was preserved from the original text
-from over 400 years ago. Right around the time that Trekalia was first
-discovered. Research mages be researching maging, she guessed. She
-tapped on the ebook device with her sonic wand. The page turned into a
-turquoise color when she did so, which looked exactly like her mixture
-was now. Did she discover a new potion, or was this ebook rubbish. She
-decided to take the ebook and shake it up a bit. The same color change
-came to the picture of the potion on the page. Rubbish. But at least she
-was going to get better marks on this mixture.
+This is what Harriet and Jem were talking about as they passed the shop
+by.
 
-“Professor Wickflit, this ebook is rubbish, I mean, broken slightly. The
-color’s all wrong.”
+“Zombies, ugh, they are so gross,” Harriet said, “I don’t understand the
+appeal. It’s just gross people with gross making that eat other gross
+people. Just gross.”
 
-Professor Wickflit looked up from examining another student’s
-microcauldron. “Ah, Miss Starr, let me take a look.” They came over to
-Harriet’s desk. “Ah, I see you got the color right! Nice work, Miss
-Starr.”
+“I kinda like it,” Jem said, “The fact that they have a theme, I mean.
+They could do a different theme, maybe?”
 
-“The book told me the wrong color. I had to shake it to get it to
-display right. The magic is off.”
+“Like what?”
 
-“Well, we’ll put this in the bin for the Magitech department, and we’ll
-see that it doesn’t get fixed,” the professor smiled their little smile.
-“Meanwhile, did you turn it off and on again? I know that’s what the
-tech folk are going to say.” The professor then proceeded to laugh their
-little laugh. Not much of a laugh, more of a chortle. “Well, now, let’s
-take a look at yours, Mister Baker.”
+“Like, uh, scary clowns? That’d scare everyone away”
 
-Using honorifics was an old affectation for Professor Wickflit. Normally
-Wickflit was the Classics Professor, but they were filling in for
-Professor Riish, who was the Alchemistry professor most of the time. At
-the beginning of the class, Wickflit said that Riish was out due to
-having a bad cold.
+“Oh, that would be so much worse. How did anybody ever like clowns?
+Should they be illegal by now?”
 
-Wait a moment, Harriet thought to herself. Wasn’t today’s class all
-about the cure for the cold? And Riish was an Alchemistry expert,
-shouldn’t she be able to cure herself? What the hell was up with that?
-Maybe she could ask the Professor about it after the bell chimed.
+“Okay, something else then.”
 
-Meanwhile, the potion she was working on started to bubble. She turned
-the heat off and started to prepare the potion for bottling, which was
-the standard procedure for these kinds of experiments. There was a
-secondary mark for how well your potion holds up on the shelf for a
-standard month. She hoped that her doesn’t get moldy again. That was
-embarrassing, and the mold started to have a personality and everything.
-She was going to name it Albert. It was a sad day when she had to
-destroy her son.
+“How about football theme,” Harriet said with a big grin on her face.
 
-Before she knew it, the bell was chiming. It was incessantly cheerful,
-she always thought. Oh good job, kids, you made it through drudgery, now
-you can walk through these hallways you’ve sadly memorized to your next
-assignment, your next class, your next test. Senioritis should have a
-cure in a bottle, because Harriet Starr had a really bad case of
-senioritis.
+“Dear lord, everything is football with you! There should be something
+that isn’t football in your life. Like, boys or something!”
 
-She approached Professor Wickflit. “Professor, excuse me please, but you
-said that Professor Riish had a cold?”
+“Boys. are. worse. than. zombies!” Harriet said gleefully, “I’m going to
+be an old maid. Just me and footie are all I need.”
 
-“Why yes, she does. The most common of colds I’m afraid.”
+“I hope that you’ll allow me to still be your friend in your old age?”
 
-“Well, wasn’t our assignment the cure for the cold? Couldn’t she, you
-know, have brewed some up herself? I’m sorry to ask but I really like
-her and I want her to be well.”
+“Of course, of course, we can call each other on our holophones and talk
+about old times, zombies, and clowns.”
 
-“Isn’t that nice?” Professor Wickflit patted her shoulder. “It turns out
-that her people don’t have the same blood as we do, which means that the
-cure isn’t going to work. Sorry to give you such bad news.”
+“Alright, then, holophone conversations? What about living together you
+loon?”
 
-“That’s alright, Professor, thanks for explaining it to me,” Harriet bit
-her lip, “How long will she be out?”
+“Fine fine fine,” Harriet said, “You can bring all the boys over you
+want, but I will still be an old maid. And we need a cat.”
 
-“Oh, it’s no telling what happens when aliens get our diseases. She
-might be out for a few days, or she may be out much, much longer.”
+“A cat?”
 
-Harriet noticed a change in Wickflit’s face. They seemed, well,
-preoccupied with some other thoughts.
+“Yes, a black cat named Ginger.”
 
-“Are you going to keep teaching us Alchemistry, Professor?”
+“What?” Jem started to laugh uncontrollably, her eyes slightly watering
+up at the effort of not crying or peeing herself, “We can’t have a cat!”
 
-“I shouldn’t think so,” the Professor said, with a slightly glazed look
-on his face, “I’m sure a substitute will be here shortly. They are
-usually pretty good with the subs these days. Back in my day, we had to
-wait a week for a good substitute to show up. We got into such trouble
-then.” They smiled. “Now, run along now, Miss Starr, there’s a good
-girl.”
+“Not with that attitude, you can’t,” Harriet said triumphantly, “You
+need the right attitude with animals, especially cats.”
 
-Harriet readjusted her pack and started to walk out the door, turned to
-ask the Professor another question, then thought better of it. She had
-to go to her voice lessons, and Professor Xann didn’t like it when she
-was late.
+“Does it have to be an Earth cat?”
+
+“No, it can come from any planet at all, as long as it’s a cat! A black
+cat named–”
+
+“–Named Ginger, I heard,” Jem interrupted. “I’ll think about it. But you
+have to promise me that if it turns out that I’m allergic, we are
+getting a different pet, and you can call it an opposite color if you
+like.”
+
+“Ooo, like a Alteric Rackclaw, and call it Fluffy?”
+
+“Don’t joke about that, Harriet, you could get into trouble, smuggling a
+rackclaw anywhere, they shouldn’t be pets. No housing officer will let
+that happen.”
+
+“Not if we make it invisible!”
+
+“Listen, and listen closely,” Jem said with an almost straight face, “I
+agree to having an invisible pet rackclaw named Fluffy if any only if we
+can train it to do the dishes.”
+
+“Deal!” Harriet and Jem shook hands on it.

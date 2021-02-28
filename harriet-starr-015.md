@@ -4,100 +4,45 @@ tags:
 - harriet-starr
 ---
 
-The GRQ-117 was the most impressive ship that Q’nall had ever seen. It
-was a thing of derelict beauty, industrial grace, and some of dumpster
-chic as well. Whatever you said about the GRQ, it was a good ship with
-some interesting features. The main new feature was the partial heads up
-display in the helmet: theoretically it could make sure that you knew
-where you were no matter what direction you were going, and it had some
-builtin damage resistant spells to make it extra durable. The sigils in
-the heads up display were a little different, since they weren’t on the
-usual glass surface that adorns most magitech computer systems. This
-display was made of paper, and it still glowed with sigils, just more
-dimly. But you didn’t need to focus on them too much; they were close to
-your eyes and adjusted themselves accordingly. The main information that
-the mini heads up display had was that it showed your speed, and where
-your target was in relation to where you were looking. That means that
-if you followed your target with your eyes, you were able to see the
-information about them without looking down, like you had to with the
-traditional heads up display that was installed in the GRT series. This
-should make combat snappier, Q’nall told himself, this should come in
-handy in space battles, especially if you take some damage while you
-were going hunting.
+So, there was something going on with Tobial that no one could figure
+out. Why was he defecting exactly? He didn’t seem that forth coming to
+anyone else in the gang, he just seemed determined to take information
+to the Rebellion, and that’s it. He was a defector that didn’t really
+like the side that he was going to, but he had to. What they don’t know
+is that he definitely has attitudes about the Rebellion that are
+unfavorable: they are just homeless, family-less people without jobs to
+do. The Rebellion is painted as the cause of the desperate and the lazy,
+not the righteous and true. But Tobial was going to have to let go of
+some of those preconceptions if he is to survive his defection. It’s not
+like he can just go back to his old life, he was joining a new one. His
+family might not understand right now, but some day they will. And that
+was all that mattered.
 
-Going hunting. Is that such a good euphemism for killing? Q’nall was
-still pretty young compared to some of the older officers, but really, a
-bit older than some of the fresh recruits. Most of the people in the
-Rebellion was the result of conquests that had been made in the last 10
-years. The Empire was in an expansionist phase; maybe they slow down
-before they destroy too many more worlds. Or stopped forever, entirely.
-Q’nall didn’t think that the Empire could ever fall, but then again,
-there were all kinds of historical instances of institutions like
-Empires falling quickly after some crisis point. Was the Rebellion that
-crisis point? Was Q’nall a special member of a special group that will
-permanently change history forever? Will he be a footnote in some text?
-He couldn’t hope for that much credit. Just the fact that the Empire had
-been stopped invading Datyl was enough for him. He was glad that he
-wasn’t apart of the mission, because almost everyone was either captured
-or killed, but the Rebellion bought the Datyllians enough time to repair
-their planetary shielding that stopped the invasion by denying the
-ground troops ground to land on. And, since the planetary shield was up,
-that meant that the Rebellion could apparate out of there and leave the
-Datyllians a chance to fight on their own. The Imperial Armada fleet was
-pretty broken up at that point, and couldn’t defend against the
-planetary defense systems anymore. They were defeated, but it seems that
-was the brightest moment in the Rebellion’s history. Ever since then,
-the Rebellion had been on the run, resupplying from sympathizers as much
-as possible, but mostly, just camping out on border planets, hunting
-their own food, fighting skirmishes that were increasingly bloody, and
-all in all, just having a really shitty time about it.
+He had written a coded message to each of his family members, to be read
+upon his death They each explained that he was sorry that he had to
+leave them and get killed, but he loved every one of them to the end of
+the universe, and that this action that he was taking was for their
+benefit, and not only for the benefit of the empire or the Rebellion. it
+was going to be a long road to recovery for them. Especially for someone
+who had proven loyal to the empire again and again, was it all a lie,
+the whole time? There was going to be a reckoning, but he didn’t care,
+he knew that he was right, dammit. He was right, and history was going
+to be on his side. He was going to be a hero of the empire in a thousand
+years. He even dreamed of being printed on some money some day Just
+picture it, his flat, uninteresting face on the 10 credit bill! hey,
+that should be something to see when it happens, considering that they
+only put the Empress onto the money these days. Maybe he could get like
+a stamp of something, do they still do stamps in the future? Of course,
+you must pay for postage, and in the future, the stamp has enough magic
+stored in it to perform some financial calculations to make sure that
+there were enough stamps on any package, which saves on postal scales.
 
-Q’nall had joined somewhat early in the Rebellion’s history, but not
-during that initial conflict. He had been an Imperial ensign, fresh from
-the local Academy branch on Fillandtite, and still closeted. Still
-having to disguise who he was to everyone. Things used to be better:
-there were laws against discrimination. But the political winds had
-begun to change, ever since the Empire had expanded to double it’s
-original size just a hundred years ago. In that time, the government had
-become more repressive, and started to curtail certain rights
-officially, and ignore a few more basic ones routinely.
+Well, I’m almost at a 10k words for this text file, which means that my
+daily total is almost 10k words, which would be amazing to do, I’m going
+to be impressed with myself if I get to that point, that would really be
+something wouldn’t it?
 
-The fact is that Q’nall was a part of a whisper network of people that
-had survived into this increasing dark time. A whisper network that
-circulated the crimes that the Empire was starting to commit. It was all
-the new Empresses’ fault. She had spearheaded a lot of the new
-initiatives, and was convinced that the Empire had to expand or die. She
-made speeches about how the economy was stagnant and how it needed new
-markets or was going to collapse under it’s own weight, and that would
-mean starvation or worse for the average citizen. Lots of scare tactics.
-And the thing is, the human race had seen this sort of thing before. It
-had just been so long that most people had forgotten their ancient
-history lessons. Huh. I suppose that if the Empire employed more
-classicists, this thing probably wouldn’t happen. At least, that’s what
-Q’nall kept telling himself.
-
-Anyway, the GRQ-117 was a hunk of junk, but he loved his. It even came
-with a little repair android. It looked like a child, but it didn’t
-speak, at least, not in a language that he could understand. He was told
-that the language was Robotic, and that it took magitechnitions years to
-understand it, and even longer to speak it. It was interesting, they
-said. No one had actually written it, it just sort of evolved among the
-androids that were human shaped but weren’t equipped with a vocalizer
-spell.
-
-Q’nall would have to contemplate this later, as there was a mission
-coming up – he was going to be assigned to protect a convoy of ships.
-That convoy must get through, no matter what, which is why Delta
-Squadron was going to get in there. They were the squadron you wanted if
-you wanted something to change. Usually for the better, although they
-were pretty loose with the term “better.” Most of the time they were
-there to clean up some mess that someone had made. They were adaptable,
-and they were all good pilots. The Rebellion couldn’t do much better
-than Delta Squadron, although they couldn’t do much better anyway.
-
-Q’nall was the most junior member of the Squadron, which meant that he
-got to do all the “best” jobs. Like flying out of a dangerous situation
-first, so that he wouldn’t get hurt. That was patronizing to him,
-although he was grateful that he didn’t die all those times. OK, not
-patronizing, but pretty close. If he were immature, which he only is
-sometimes when he feels like it
+Well, lets’ keep going. So, there is postage in the future, what about
+owls? I don’t think that anyone uses owls to send messages, they use the
+holonet to send messages. You just put your letter in the slot and it
+gets magicked into the other persons slot.

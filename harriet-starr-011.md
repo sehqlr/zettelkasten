@@ -4,103 +4,188 @@ tags:
 - scene
 ---
 
-This wasn’t the way that it was supposed to go. The footballs were
-bouncing around as much as they were expected to; in fact, they were
-doing even better than expected. They kept multiplying and then bouncing
-in every possible direction. If Harriet had played Mario Kart, should
-would have thought about green turtle shells, zooming around the school
-like some kind of dodecahedral hurricane. This plan was going to work
-after all, and Harriet was pleased at the damage that it was doing to
-all the ugly art work and what not on the walls, The moving portraits
-were all empty now, all the people in the pictures had left their frames
-to avoid the football Armageddon that was thrust upon them by Harriet
-and her crew. Were they her crew? Not really, she decided, but they were
-going to become her crew if she had anything to say about it. She had
-been waiting to be a team captain for 3 years, now, and in all that
-time, she never really got more than a meter closer to that goal since
-Elise was still in charge. It was going to be her season. She was going
-to at the least be second in command, but she always had a hard time
-keeping things serious. Her acerbic humor wasn’t going to help her
-command a unit, or whatever the military term is. I guess she ended up
-in a military group after all. That was the most popular vocation for
-people in her school, after bureaucrat. Not many artists were able to
-make it through the school without getting roped into doing a “good” job
-for the Empire. Then again, there were those art classes that she was
-required to take. She couldn’t really figure out what the school was all
-about anyway. .Was it vocational or academic? Was it meant to turn out
-artists or technocrats? Which one, school? Which one?
+“I don’t know how to begin to explain this, but I must tell you some
+important information about the Empire’s new superweapon that they will
+use to end the Rebellion once and for all.” Tobial was whispering
+quickly, as if he was going to die if someone else heard him.
 
-She digressed. The football plan was working. And now came the moment
-they were waiting for: apparate to the portkey in the central corridor.
-Harriet had only just learned how to apparate a few months ago, so she
-was understandably worried that she was going to cause some kind of
-problem when she entered the room. Was she going to apparate right into
-somebody, and cause them to hurt her in some way. Was she going to get
-someone else hurt?
+“I don’t understand what you mean. Who are you?” Eenee whispered back,
+“I’ve never seen you before at any of the camps. Who are you?”
 
-She had a sneaky suspicion that the portkey wasn’t going to be there.
-That wasn’t a real problem. It’s just that, ever since she found out
-about the Force, she was starting to trust her intuition more and more.
-Maybe she was going to become some powerful sage after all. Now that
-would be a laugh, a footballer sage? There shouldn’t be room in the
-galaxy for that kind of nonsense.
+“I’m the main engineer for Project Fireball, a superweapon that can
+destroy planetside populations and wipe out fleets. It’s a genocide
+machine that must be destroyed or all hope for our families’ survival
+will die instead.”
 
-Okay, it was go time. Tobial waved his laser wand in a complicated
-pattern to scry into the room where the port key was. Yep, still intact.
-The way that planetary portkeys work is that you have two identical
-pieces of glass that have handles on them, to allow for an easy place to
-grip while you are waiting for it to activate. For a few seconds anyway.
-Then, the two portkeys switch places, taking along anyone on the station
-to the surface, and anyone on the surface to the station. For this sort
-of thing, the portkey access is controlled by a schedule, and the
-portkey only activates on that schedule. If you were late, you had to
-make a new appointment to get access to the portkey. However, the plan
-for this trip was to activate the portkey prematurely by activating the
-manual mode, which is something that happens in emergencies. And, she
-thought to herself, this is definitely an emergency. They had
-information vital to the Rebellion and they were in danger of getting
-killed by Armada forces.
+“That’s a melodramatic thing to say,” Harriet said, “Sounds like a story
+to me.”
 
-Once the coast was clear, Harriet closed her eyes, and imagined herself
-in the new destination, and… she was there. Perfect, right where she
-needed to be, right next to the portkey. She reached over and pulled the
-lever that activates the manual mode.
+“Hang on though, defectors have been known to show up. Aren’t we all
+defectors here?” Q’nall insisted, “Besides, we’ve got to get out of here
+anyway.” He turned to Tobial, “Can you get us off this station? We are
+cut off from the portkeys in the main corridor, and we don’t have a ship
+anywhere nearby. How did you get onto the station?”
 
-just as she was doing that, a football flew right into her field of
-vision. Without thinking, she headed the ball – right into the portkey.
+“I smuggled aboard the food barge,” Tobial reported, “then I apparated
+into the gymnasium equipment storage room and tracked you down from
+there. Please,” Tobial was starting to look like a portrait of doom,
+“You must deliver this pad to the Rebellion.”
 
-It smashed. It was like a bejeweled snowfall, the way that the crystal
-shattered against the wall and all the glass fell down to the ground.
-This was what her intuition was telling her, that she was going to have
-to accept that the plan wasn’t going to work anymore.
+He proffered the pad to Q’nall, who did not take it, but rather pushed
+it back into Tobial’s chest. “You deliver it yourself. You are one of
+us, and we won’t leave you behind. We’re getting out of here.”
 
-Q’nall was the first to speak after the portkey was smashed, “What
-happened?”
+“But how are we getting out of here?” Harriet whined. “I don’t
+understand why no one thinks before they make proclamations about where
+they are going or what they are doing. Is this the rebel way?”
 
-“I headed the ball and, and, and, I broke it!” Harriet was almost in
-tears and almost yelling at the top of her lungs, but not quite.
-Everyone could tell that she was really upset, that’s the point.
+“Sometimes, it has to be, when the odds are against you,” Q’nall said
+looking directly into Harriet’s eyes. “And the odds are against us now.
+Unless you have any bright ideas?”
 
-“Don’t worry, the planetside portkey will arrive in less than a minute,”
-Tobial said, while waving his hands to try to keep the footballs at bay,
-“Then we’ll just activate the portkey again, and we’ll be off!”
+Harriet took a moment to settle herself in her own mind. What she did on
+the outside was to look at Q’nall haughtily and then turn her eyes up to
+the ceiling. What could she possibly offer the Rebellion? She felt as if
+this were her moment to contribute positively to the cause, but she had
+no ideas. She remembered how simple life was when it was just school and
+her life was all about football. If only there was someway to make
+football work in her favor.
 
-“And it’ll keep them from following us. Good job, Hare!” Jem said. And
-Harriet was glad that Jem was there. How did she ever guess that Jem was
-on her side! I wonder how many of her other dorm mates felt the same way
-about the Empire?
+Maybe, there was a way. Just maybe, football was going to be the answer
+after all. Heh, she wondered what Elise would have thought of this dumb
+plan. Or Jem. She wish they were all there with her, to help her out,
+that was probably not going to happen. She was a traitor, and she
+couldn’t help to think that all her friends would see her as an enemy
+now. But after what they did to Autok, there was no turning back.
+Besides, she didn’t like all of her friends anyway.
 
-However, the celebration was cut short when a laser wand blast exploded
-one of the footballs in midair, really close to where Harriet’s face
-was.
+“Okay, I think I might have a plan.”
 
-“Take cover!” Eenee shouted, drawing her own laser wand and launching an
-Expelliarmous spell. It didn’t connect, but it did give everyone enough
-time to duck into various tables and things that were in the corridor.
-Why were there these things in the corridor, hasn’t anyone heard of safe
-walkways? Harriet moaned in her mind as she found a debate podium to
-hide behind.
+“Do be serious, Hare,” Q’nall said in a sigh, “Sarcasm can’t save the
+day.”
 
-It seemed like minutes. Spells flying everywhere, footballs flying
-everywhere, it was a completely chaotic situation and Harriet had some
-experience with that, since she was a zero-g footballer.
+“Sure it can, in the right moment. Besides, this isn’t about sarcasm.
+This is about footballs.”
+
+“How?” Tobial said, “How could this possibly have anything to do with
+football?” He turned to Q’nall, then Eenee, “Has she ever come up with a
+plan before? Why is she in charge all of the sudden? I have information
+vital to the Rebellion and to civilization itself, and we are talking
+about football?”
+
+“Not football. Footballs” Harriet enunciated the final buzz sound of
+“footballs” quite a lot, for emphasis for small minds. “My plan is to
+get to the equipment room and enchant all the footballs to start
+bouncing around randomly and wreck havoc on the school. Well, not havoc
+really, but a really big distraction. While the Armada troops are busy
+with the distraction, we can leave.”
+
+“Leave how?” Q’nall asked, but then was interrupted by Eenee.
+
+“What spell would make footballs go on their own?”
+
+“We use it all the time at practice,” Harriet said, “So you can do
+drills and stuff alone if your partner is sick or something. If we cast
+the spell a couple of times on the footballs, they will bounce around
+like mad and break stuff. And they hurt when they hit you, I should
+know, it’s happened to me more than once. I had a black eye one time,
+seriously.”
+
+“I don’t think that these footballs will be a completely absorbing
+distraction, but it could help us clear a path to the portkeys. Once we
+get on the planet surface, we can hide, and signal a ship to come get
+us. Then, it’s back to headquarters to take a look at that Project
+Fireball of yours.”
+
+Tobial nodded. “Yes, that’s acceptable to me. This information must get
+to the Rebellion as soon as possible. Everything depends on it.”
+
+“Fine by me,” Eenee said, “just as long as we get to survive the
+delivery.”
+
+“As long as one of us survives, it’ll be worth it,” Tobial said.
+
+“Then it’s settled?” Q’nall looked at everyone in the room.
+
+“Yes,” Harriet said, “let’s do the thing, the plan, the plan thing.”
+
+Everyone nodded together in agreement, then began to apparate away, to
+the equipment room.
+
+When Harriet got to the equipment room, Tobial was pointing at a corner,
+“That’s where I came in. I planned it down to the finest detail. I
+scryed for a week to find that spot. It’s just above a bulkhead below,
+so there was less of a chance that someone would hear me apparate in
+here.”
+
+Harriet looked around the room. She hadn’t been in here for some time,
+she did remember where the footballs were stored. She walked over to the
+bin where they were kept, and opened it up.
+
+“Here, we have about, oof, maybe 5 balls we can enchant.”
+
+“Not good enough,” Eenee said, “When I was picturing how this was going
+to go down, I was thinking like a battalion’s worth of footballs. Like,
+hundreds.”
+
+Harriet was puzzled for a moment, then said, “We could multiply them, do
+you know a multiply spell? Does anyone know one?”
+
+“I do,” Tobial said, “I copy tools in my department when my workers lose
+or break theirs.”
+
+“Okay,” Q’nall said, “but we can’t turn 5 balls into hundreds in here,
+there’d be no room.”
+
+“And, it’d take a long time to cast that spell on hundreds of balls. If
+only there was a way to cast the spell once, and somehow make the
+footballs multiply as we were moving through the school, we might be
+able to make it.” She turned to Tobial, “That multiply spell, can you
+make it triggered by something? Like, say, hitting a wall?”
+
+Tobial, looked away from Harriet for a moment, and then said, “Yes, I
+believe you can do it where the ball will multiply when it rapidly
+decelerates and split the vector on the rebound.”
+
+“What exactly does that mean?” Eenee said, protesting.
+
+“What he means is,” Harriet began, “is that the balls will multiply when
+they hit walls or people, and split the difference on the bounce back.
+It’ll be utter chaos in the corridors. All I have to do is kick them at
+the right angles, and we can waltz to the portkey. Well, we’ll have to
+watch out for the balls too, but since we know what’s going on, and they
+won’t, that means that we should be able to get to the portkey without
+much resistance.”
+
+“Okay, and what will happen when the balls run out of energy?” Eenee
+insisted.
+
+“They won’t in a hurry. The bouncing spell is designed to keep drills
+going for hours if necessary, and they have an added bonus of seeking
+out a player when they aren’t being actively kicked.”
+
+“Brilliant,” Eenee said, “I’m convinced. This will make one hell of a
+story, Nall.”
+
+“I sure hope so,” Q’nall said. As long as we get out of this alive, I’ll
+let you tell it too. Even take credit for some parts of this plan, and I
+won’t talk about your complaining at all.” He smiled, then turned to
+Harriet, “Are you ready to do this?”
+
+Harriet looked deeply into Q’nalls eyes and somehow, knew everything was
+going to be alright after all. She knew it wasn’t going to be the last
+time she say those eyes. She nodded, then said, “Let’s get to work.”
+
+The first thing that had to be done was to get the footballs out of the
+bin, and place them on the floor so that the spells could be cast on
+them. Tobial drew a magic circle would have made Professor Wickflit cry,
+as he said, gets the job done. They put the footballs into the circle,
+one at a time, and they cast their respective spells on them. Tobial
+went first, casting his spell with precision and his sonic wand. Harriet
+went second, going through the same motions as she always did when she
+did this for practice. She never thought she’d be using the spell to
+destroy school property. She started to have a wicked smile on her face
+when she thought about all the damage she was going to do. She knew it
+wasn’t going to be permanent damage, but there was a part of her that
+was punk rock, and that punk rock part of her was starting to get into a
+rebellious spirit. Maybe she could make it in the Rebellion after all?

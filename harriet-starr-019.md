@@ -4,117 +4,79 @@ tags:
 - scene
 ---
 
-There was nothing greater than a food replicator that actually worked.
-The way that it worked is that you put in a credit chip, and then it
-would listen to your food order and magic it into existence. You then
-would open the little hatch to see exactly what you wanted, well, based
-on what you said anyway. There was a way to enter your own food spells,
-but Harriet never bothered. The regular food that came out of the little
-dumbwaiters were quite good, although never as good as home cooking. She
-would think about her father’s home cooking often. He was nearly a
-professional chef in her book, and she never ate a meal that wasn’t
-cooked from scratch at home. Ah, home. Was there anyway that she was
-going to see her home again? Or was it going to be living in the mud
-with these other rebels for the rest of her life. Hm. Maybe she should
-start an association, or even a league, for the Rebellion? She could do
-something to the dumb rules that the Leagues had put into place, and add
-in some new ones that would make the game more fun. That was something
-to think about while eating this spaghetti, she thought to herself. Yes,
-space spaghetti with space meatballs (actually, they weren’t space meat,
-it was normal everyday Arturian beef). With black noodles. Her favorite.
+When Q’nall came to, he was on the ground. Not in his ship, not in
+space, but on the ground. What ground? What? How?
 
-As she grabbed the plate out of the replicator, she saw Eenee eating by
-herself in the mess hall. Harriet decided to go talk to her. After all,
-she was going to have to make new friends, right?
+He heard a groaning. It was Eenee. Just a few paces away. She was
+bleeding from her nose. Q’nall put his fingers on his lips and pulled it
+away. Yep, green, pasty fluid. That was his alright. He looked around.
+Yes! The enemy pilot was a little always off, still passed out. Or dead.
+He started to get up, but his knee gave out. He looked down. The
+artificial knee that he got two years ago wasn’t warm like it was
+supposed to be. He caressed it with his hand. Yep, cold. That means that
+the magic failed, and that he wasn’t going to be walking under his own
+power any time soon. He didn’t have the skills to do these repairs. He
+looked at his exposed kneecap. There was just the smallest protrusion of
+metal from it. He placed his thumb over the metal. Cold. Damn. He was
+going to need a magitechnition on this one.
 
-“Hey,” Harriet said as she approached the table, “this seat taken?”
+He dragged himself over to Eenee. “Hey, hey, wake up, don’t go dying on
+me.”
 
-“Not at all, pull up a chair,” Eenee said, gesturing to the empty spot
-right across from her. As Harriet laid her tray down on the table, she
-looked at the black spaghetti and said, “I’ve never seen a meal like
-that before, what is it?”
+Eenee wasn’t looking too good. She had a black eye. That was a pretty
+common injury for pilots that flew the Veesta-class fighters. The
+helmets had a partial heads up display embedded over the pilot’s
+stronger eye to allow for information to be displayed to the pilot
+regardless of head direction. It was the kind of thing that seems good
+on paper but not good in practice. Unfortunately, it was a hard hack to
+remove the module from the helmet every time you flew, so a lot of
+pilots just turn the heads up display off except for emergency sigils.
+You don’t want to deactivate emergency sigils, unless you want your
+commanding officer to be royally pissed at you. Or if you want to die.
+Or both.
 
-“Black Spaghetti, with white sauce and Arturian meatballs,” Harriet
-said, “It reminds me of home. My father used to make this for me all the
-time, completely from scratch. It became my favorite meal to get from
-the replimat at the school cafeteria. They don’t do Arturian meatballs
-there, they say that it’s too expensive to get fresh. So I’ve made due
-with replicated stuff.”
+“Eenee, wake up, you have a HUD eye,” Q’nall starting to ready a slap,
+then Eenee raised her hand and lightly grabbed his wrist.
 
-“Interesting. I’d say that they can’t get Arturian beef is because it’s
-quite pricey. How did your family afford it?”
+“Why aren’t we dead?” Eenee grumbled, “How are we planet-side, we were
+no where near a planet.”
 
-“A lot of my family’s income went into getting quality ingredients for
-my father. He is practically a professional chef, but he never managed
-to get something out of his kitchen and onto other people’s plates for
-money. My grandmother called him a failure behind his back, but he never
-failed me. He was always there for me.” Harriet started to tear up at
-the thought of never seeing him again. That thought would not leave her
-mind. There wasn’t any soft voice of the Force helping her feel better
-this time either. Sheesh, why was there this tension about her family
-all of the sudden.
+“The explosion, that must be it” Q’nall said, “The apparation spell must
+have activated, in like, the explosion. We were all caught in it, and we
+must have, apparated… here.”
 
-She looked across the room to Tobial, who was also eating alone, but he
-was fixating on his plate, and not inviting anyone to join him.
+“Where is here?” Eenee mumbled.
 
-“Don’t bother,” Eenee said to her. “I tried to socialize with him
-earlier but he’s not interested. I think that he is having trouble
-adjusting to the new lifestyle he’s chosen for himself.”
+“I have no clue. I’ve never heard of anything like this happening,”
+Q’nall started to look around, surveying the landscape. It was pretty
+nice, actually. Probably the nicest planet he’d ever been on. He looked
+at the sky. It was a brilliant blue. He clutched a clump of ground,
+looking at the small, tightly gripping grass and the topsoil. “I think
+here is an Imperial planet.”
 
-“I think that he’s just missing someone. You know how he was going on
-and on about families in all his little speeches. I bet you that he has
-some young kids that he’s not going to see grow up.”
+“How do you know that?” Eenee was starting to pull her self up from the
+ground.
 
-“You might be right. I had a hard time leaving my sister behind, but she
-wouldn’t listen to me,” Eenee said, somewhat bitterly. “Gyshy, I said,
-you have to listen to me! But she was all like, No Eenee, you have to
-listen to me, you can’t become a traitor, that’s like the worse thing in
-the universe, or something. Anyway. She wasn’t going to tell me what to
-do anymore than I was going to tell her what to do, right?”
+“I’ve never seen grass like this. It must be genetically engineered. And
+the sky is really, really clear. That means that this planet has been
+terraformed, or at least maintained like a park. That must mean that
+this is an Imperial planet that is really, really established.”
 
-“When was the last time you talked to Gyshy?” Harriet inquired politely.
+“I think you are just complaining about our usual haunts.” Eenee started
+to stand now. “I think you are jealous. Now let’s stop worrying about
+the grass and focus on our prisoner?”
 
-“About two years, now, I reckon,” Eenee said. “Our last conversation was
-an argument. Like most of the last things we said to each other. We
-didn’t get along, my sister and I.”
+“I’m not sure if we aren’t the prisoners now.” Q’nall said anxiously.
+“If this is an Imperial planet, we are doomed to be prisoners ourselves,
+and I don’t know about you, but I’m not going to be stuck in an Imperial
+camp.”
 
-“Were you ever close?”
+“Are you kidding? If we are on Imperial soil, we’ve invaded. That means
+that we get executed. Plus this is a hostage situation now.”
 
-“Well, of course we were close, we are twins.”
+“Since when?”
 
-“Twins?”
-
-“Yeah, twins. Everyone in my species is a twin. The only children on my
-world only happen if one of the dies before being born. Everyone else is
-a twin. It was a year in the Rebellion before I realized that most
-species don’t have that kind of thing set up in their worlds, and that
-twins are really rare. For us Duvorq, it’s completely normal.”
-
-“Wow, that’s really interesting. You know,” Harriet said, “they require
-you to take Alien Cultures at school, but I’ll say that we never had
-anything this in depth about anyone before.”
-
-“That’s because most of the alien cultures that you study are ones that
-aren’t alive anymore. It’s really xenoarchaeology, because the
-curriculum hasn’t been updated since those worlds were originally
-conquered like, 200 years ago.”
-
-“I’m not that keen on history,” Harriet admitted, “I can’t ever get the
-dates right, and that’s pretty much what history is all about, right?”
-
-“I don’t think so, and neither does Nall,” Eenee said in a matter of
-fact way. “We all believe that history is important. We have studied
-various historical records to gain experience of how to successfully run
-a rebellion.”
-
-“And what have you found out?”
-
-“That most rebellions are crushed, not much longer after they begin.”
-
-Harriet stopped eating, and Eenee recovered quickly, “But we have
-resources that they didn’t have, and a lot of rebellions happened before
-magic was common knowledge, so that’s different too. So, in some ways,
-we are completely on our own.”
-
-They both looked at each other, and when they started to eat again, with
-a few more smiles.
+“Since we have a hostage,” Eenee smiled. “We can’t get home without our
+ship’s apparation drive, so now we are going to have to negotiate a way
+off this planet, and that enemy,” she said, pointing a bloody finger at
+the prone fighter pilot, “is our hostage.”
