@@ -1,51 +1,62 @@
 ---
 tags:
-- scene
 - harriet-starr
+- scene
 ---
 
-“So, here we are, in the middle of burning wreckage” Jem started to
-panic. “How do you rebels deal with this?”
+Tobial was worried, always worried, but this was about at the limit of
+what he was capable of feeling. This was worse than that time his
+younger child stepped on a sharp tack that was left in the ground
+somehow. He didn’t even own any tacks, what was this the 20th century?
+Don’t ask questions, I’ll tell you no lies. Now, what was happening to
+Tobial was a feeling of dread before going on what could be considered a
+suicide mission. He was going to break into a secure scholastic space
+station and deliver a message to the Rebellion, and somehow walk away
+from it without getting caught? What was he thinking, surely he was
+going mad. Is this was losing your mind felt like, feeling compelled to
+save the galaxy? When really you were a nobody. Then again, he wasn’t a
+nobody anymore, he was the main engineer of the project, and he was able
+to get enough information to piece together the horrible superweapon
+that he was helping to create. He didn’t have any way of contacting the
+Rebellion, up until now that is. The secret news of the hostage
+situation at the school meant that he was going to get in there without
+a lot of questions, since the press wasn’t allowed there. All he would
+have to do is to apparate in there, find the rebel, give them the pad,
+and be out, just like that. Maybe he would learn a way to contact the
+Rebellion in the future? Like, a secret radio handshake or something?
+No, don’t think about all that spy versus spy stuff, you need to focus
+on the task at hand, which is getting that information to the Rebellion.
+That’s all that mattered at this point.
 
-“I’m pretty new, so I have no idea how rebels deal with this. They don’t
-have rebel school you know.” Harriet said saltily.
+He looked at his layout of the school again. What should be the entrance
+of the school was clearly not the place to start, so he began to trace
+different walkways through the school, starting at the entrance and
+working away. He was trying to figure out where he would keep the
+hostages. It had to be far enough away from the entrance to make evading
+the Armada officers easier, but not so cornered that you had to where to
+run when you needed to evade them. Like a maze puzzle that he used to do
+when he was small, Tobial traced path after path through the school. He
+was about to give up when it occurred to him: the gymnasium was far
+enough away from everything that it made sense to hide out there. But
+the main court was too open… aha, the equipment room. That’s where he’d
+look first. And with a good enough scry spell, he’d be able to see what
+was in there before he apparated in. Now, because the school is also a
+space station, that means that you can’t just apparate in there, it was
+too far away from the planet to make it normally. You’d need some kind
+of booster spell, probably some kind of building with some kind of
+gateway in it or something, that was a pretty common solution to the
+problem of traveling to and fro space stations. But that would likely
+get you into the entrance, so that wasn’t going to work. He was going to
+have to make sure that no one sees him coming or going into the school.
 
-“Wait, where are my parents? Shouldn’t they be here? I can see your
-parents, but I can’t find mine. What I felt in space, it can’t be true,
-it can’t be true!”
-
-And so, this scene is where we find out definitely that Harriet’s
-parents have been killed by Project Fireball as the ship that they were
-on got blown from the sky in a real bad way. The reason why they were
-all on that ship? I have no idea, I’ll have to think of it either now or
-later, and I’m busy right now telling you a story and having back
-trouble. Anyway, so this death scene is sad, probably the most emotional
-that the book will get. I’m going to have to really dig deep and be
-vulnerable for this, but I’m not in that state of mind right now and I
-can’t think of a way of digging that deeply and doing wars at the same
-time. That might have to be a scene that get’s written in like the
-second draft or something. Like the sex scenes. But I’m not sure there
-should be any sex scenes. but then again, I’m taking fan fiction as an
-inspiration and we all know that fan fiction involves really weird sex
-scenes that don’t make any sense and aren’t really that sexy, but what
-can you do? This is Harry Potter and Star Wars mashed up, and they don’t
-deal with sex hardly at all. Then again, they don’t deal with trans
-positively either, so we’ll see. We’ll have just to wait and see.
-
-Meanwhile, back and the death star, the way that this works is that we
-start the story with Tobial being a lowly engineer, working on something
-that raises his suspicious nature to the fore and gives him a first
-glimpse into what the station does. His realization at what it does is
-when we discover what it does and he defects. He’s going to be cut in a
-bunch into the early story, then when he joins the alliance he like
-become a big deal general because of his information and the upshot is
-that his family ends up needing to be saved by him and he rescues them
-and that is how his whole family comes into the rebellion, because the
-Empress wants to make an example of him just like he thought was going
-to happen, but hey, he’s able to get everybody out, well, maybe someone
-dies, but I haven’t decided yet.
-
-Anyway, what happens to Eenee is that she doesn’t reconcile with her
-sister twin at all, and when her twin get’s injured, she refuses to get
-rescued, so it’s like not everyone is willing to come over to the
-rebellion, no matter how bad it gets for them.
+Then, it hit him, like a moment of clarity that he had heard so much
+about in stories. The food barge, of course. It would take too long to
+bring in food through the people gateway, so that means that there had
+to be a food barge or, the equivalent of a dummy elevator, right? There
+had to be, and he was going to smuggle himself in that transport. That
+would probably take him right to the kitchens, which were also a pretty
+good place to start this mission. So, that’s what was going to happen.
+He was going to board a food delivery ship to get onto the station,
+apparate into the gymnasium supply closet, and then march to the place
+where they were holding the hostages. This was going to work. This was
+going to work after all.

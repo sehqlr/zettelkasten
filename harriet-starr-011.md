@@ -1,103 +1,106 @@
 ---
 tags:
-- scene
 - harriet-starr
+- scene
 ---
 
-The GRQ-117 was the most impressive ship that Q’nall had ever seen. It
-was a thing of derelict beauty, industrial grace, and some of dumpster
-chic as well. Whatever you said about the GRQ, it was a good ship with
-some interesting features. The main new feature was the partial heads up
-display in the helmet: theoretically it could make sure that you knew
-where you were no matter what direction you were going, and it had some
-builtin damage resistant spells to make it extra durable. The sigils in
-the heads up display were a little different, since they weren’t on the
-usual glass surface that adorns most magitech computer systems. This
-display was made of paper, and it still glowed with sigils, just more
-dimly. But you didn’t need to focus on them too much; they were close to
-your eyes and adjusted themselves accordingly. The main information that
-the mini heads up display had was that it showed your speed, and where
-your target was in relation to where you were looking. That means that
-if you followed your target with your eyes, you were able to see the
-information about them without looking down, like you had to with the
-traditional heads up display that was installed in the GRT series. This
-should make combat snappier, Q’nall told himself, this should come in
-handy in space battles, especially if you take some damage while you
-were going hunting.
+This wasn’t the way that it was supposed to go. The footballs were
+bouncing around as much as they were expected to; in fact, they were
+doing even better than expected. They kept multiplying and then bouncing
+in every possible direction. If Harriet had played Mario Kart, should
+would have thought about green turtle shells, zooming around the school
+like some kind of dodecahedral hurricane. This plan was going to work
+after all, and Harriet was pleased at the damage that it was doing to
+all the ugly art work and what not on the walls, The moving portraits
+were all empty now, all the people in the pictures had left their frames
+to avoid the football Armageddon that was thrust upon them by Harriet
+and her crew. Were they her crew? Not really, she decided, but they were
+going to become her crew if she had anything to say about it. She had
+been waiting to be a team captain for 3 years, now, and in all that
+time, she never really got more than a meter closer to that goal since
+Elise was still in charge. It was going to be her season. She was going
+to at the least be second in command, but she always had a hard time
+keeping things serious. Her acerbic humor wasn’t going to help her
+command a unit, or whatever the military term is. I guess she ended up
+in a military group after all. That was the most popular vocation for
+people in her school, after bureaucrat. Not many artists were able to
+make it through the school without getting roped into doing a “good” job
+for the Empire. Then again, there were those art classes that she was
+required to take. She couldn’t really figure out what the school was all
+about anyway. .Was it vocational or academic? Was it meant to turn out
+artists or technocrats? Which one, school? Which one?
 
-Going hunting. Is that such a good euphemism for killing? Q’nall was
-still pretty young compared to some of the older officers, but really, a
-bit older than some of the fresh recruits. Most of the people in the
-Rebellion was the result of conquests that had been made in the last 10
-years. The Empire was in an expansionist phase; maybe they slow down
-before they destroy too many more worlds. Or stopped forever, entirely.
-Q’nall didn’t think that the Empire could ever fall, but then again,
-there were all kinds of historical instances of institutions like
-Empires falling quickly after some crisis point. Was the Rebellion that
-crisis point? Was Q’nall a special member of a special group that will
-permanently change history forever? Will he be a footnote in some text?
-He couldn’t hope for that much credit. Just the fact that the Empire had
-been stopped invading Datyl was enough for him. He was glad that he
-wasn’t apart of the mission, because almost everyone was either captured
-or killed, but the Rebellion bought the Datyllians enough time to repair
-their planetary shielding that stopped the invasion by denying the
-ground troops ground to land on. And, since the planetary shield was up,
-that meant that the Rebellion could apparate out of there and leave the
-Datyllians a chance to fight on their own. The Imperial Armada fleet was
-pretty broken up at that point, and couldn’t defend against the
-planetary defense systems anymore. They were defeated, but it seems that
-was the brightest moment in the Rebellion’s history. Ever since then,
-the Rebellion had been on the run, resupplying from sympathizers as much
-as possible, but mostly, just camping out on border planets, hunting
-their own food, fighting skirmishes that were increasingly bloody, and
-all in all, just having a really shitty time about it.
+She digressed. The football plan was working. And now came the moment
+they were waiting for: apparate to the portkey in the central corridor.
+Harriet had only just learned how to apparate a few months ago, so she
+was understandably worried that she was going to cause some kind of
+problem when she entered the room. Was she going to apparate right into
+somebody, and cause them to hurt her in some way. Was she going to get
+someone else hurt?
 
-Q’nall had joined somewhat early in the Rebellion’s history, but not
-during that initial conflict. He had been an Imperial ensign, fresh from
-the local Academy branch on Fillandtite, and still closeted. Still
-having to disguise who he was to everyone. Things used to be better:
-there were laws against discrimination. But the political winds had
-begun to change, ever since the Empire had expanded to double it’s
-original size just a hundred years ago. In that time, the government had
-become more repressive, and started to curtail certain rights
-officially, and ignore a few more basic ones routinely.
+She had a sneaky suspicion that the portkey wasn’t going to be there.
+That wasn’t a real problem. It’s just that, ever since she found out
+about the Force, she was starting to trust her intuition more and more.
+Maybe she was going to become some powerful sage after all. Now that
+would be a laugh, a footballer sage? There shouldn’t be room in the
+galaxy for that kind of nonsense.
 
-The fact is that Q’nall was a part of a whisper network of people that
-had survived into this increasing dark time. A whisper network that
-circulated the crimes that the Empire was starting to commit. It was all
-the new Empresses’ fault. She had spearheaded a lot of the new
-initiatives, and was convinced that the Empire had to expand or die. She
-made speeches about how the economy was stagnant and how it needed new
-markets or was going to collapse under it’s own weight, and that would
-mean starvation or worse for the average citizen. Lots of scare tactics.
-And the thing is, the human race had seen this sort of thing before. It
-had just been so long that most people had forgotten their ancient
-history lessons. Huh. I suppose that if the Empire employed more
-classicists, this thing probably wouldn’t happen. At least, that’s what
-Q’nall kept telling himself.
+Okay, it was go time. Tobial waved his laser wand in a complicated
+pattern to scry into the room where the port key was. Yep, still intact.
+The way that planetary portkeys work is that you have two identical
+pieces of glass that have handles on them, to allow for an easy place to
+grip while you are waiting for it to activate. For a few seconds anyway.
+Then, the two portkeys switch places, taking along anyone on the station
+to the surface, and anyone on the surface to the station. For this sort
+of thing, the portkey access is controlled by a schedule, and the
+portkey only activates on that schedule. If you were late, you had to
+make a new appointment to get access to the portkey. However, the plan
+for this trip was to activate the portkey prematurely by activating the
+manual mode, which is something that happens in emergencies. And, she
+thought to herself, this is definitely an emergency. They had
+information vital to the Rebellion and they were in danger of getting
+killed by Armada forces.
 
-Anyway, the GRQ-117 was a hunk of junk, but he loved his. It even came
-with a little repair android. It looked like a child, but it didn’t
-speak, at least, not in a language that he could understand. He was told
-that the language was Robotic, and that it took magitechnitions years to
-understand it, and even longer to speak it. It was interesting, they
-said. No one had actually written it, it just sort of evolved among the
-androids that were human shaped but weren’t equipped with a vocalizer
-spell.
+Once the coast was clear, Harriet closed her eyes, and imagined herself
+in the new destination, and… she was there. Perfect, right where she
+needed to be, right next to the portkey. She reached over and pulled the
+lever that activates the manual mode.
 
-Q’nall would have to contemplate this later, as there was a mission
-coming up – he was going to be assigned to protect a convoy of ships.
-That convoy must get through, no matter what, which is why Delta
-Squadron was going to get in there. They were the squadron you wanted if
-you wanted something to change. Usually for the better, although they
-were pretty loose with the term “better.” Most of the time they were
-there to clean up some mess that someone had made. They were adaptable,
-and they were all good pilots. The Rebellion couldn’t do much better
-than Delta Squadron, although they couldn’t do much better anyway.
+just as she was doing that, a football flew right into her field of
+vision. Without thinking, she headed the ball – right into the portkey.
 
-Q’nall was the most junior member of the Squadron, which meant that he
-got to do all the “best” jobs. Like flying out of a dangerous situation
-first, so that he wouldn’t get hurt. That was patronizing to him,
-although he was grateful that he didn’t die all those times. OK, not
-patronizing, but pretty close. If he were immature, which he only is
-sometimes when he feels like it
+It smashed. It was like a bejeweled snowfall, the way that the crystal
+shattered against the wall and all the glass fell down to the ground.
+This was what her intuition was telling her, that she was going to have
+to accept that the plan wasn’t going to work anymore.
+
+Q’nall was the first to speak after the portkey was smashed, “What
+happened?”
+
+“I headed the ball and, and, and, I broke it!” Harriet was almost in
+tears and almost yelling at the top of her lungs, but not quite.
+Everyone could tell that she was really upset, that’s the point.
+
+“Don’t worry, the planetside portkey will arrive in less than a minute,”
+Tobial said, while waving his hands to try to keep the footballs at bay,
+“Then we’ll just activate the portkey again, and we’ll be off!”
+
+“And it’ll keep them from following us. Good job, Hare!” Jem said. And
+Harriet was glad that Jem was there. How did she ever guess that Jem was
+on her side! I wonder how many of her other dorm mates felt the same way
+about the Empire?
+
+However, the celebration was cut short when a laser wand blast exploded
+one of the footballs in midair, really close to where Harriet’s face
+was.
+
+“Take cover!” Eenee shouted, drawing her own laser wand and launching an
+Expelliarmous spell. It didn’t connect, but it did give everyone enough
+time to duck into various tables and things that were in the corridor.
+Why were there these things in the corridor, hasn’t anyone heard of safe
+walkways? Harriet moaned in her mind as she found a debate podium to
+hide behind.
+
+It seemed like minutes. Spells flying everywhere, footballs flying
+everywhere, it was a completely chaotic situation and Harriet had some
+experience with that, since she was a zero-g footballer.
