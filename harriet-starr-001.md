@@ -1,108 +1,101 @@
 ---
 tags:
-- scene
 - harriet-starr
+- scene
 ---
 
-Harriet Starr was working on a potion. For Alchemistry IV, naturally.
-There was no way that she was going to get top marks for this job. It
-was green, but it was supposed to be more of a teal color. Why does she
-need to know how to make potions anyway? This whole recipe was a
-complete joke anyway. Brewing the leaves of the Trekalian tea bush with
-ginger and bowels of frog is really supposed to be a way to cure the
-common cold? Shouldn’t this be part of basic medical training, not part
-of normal school? When would she need this? She wasn’t planning on
-getting sick.
+Later, after detention ate right into her dinner, she finally managed a
+few crumbs. Well okay they weren’t actually crumbs; but they might as
+well be. She definitely had better meals than that. Actually, she was
+starting to really appreciate some of the meals she had here. Which
+scared her, because complaining about the food was a team sport at this
+school. Even those who didn’t have her magical talents, or her strength,
+could be equals when it came time to eat some of the horse slop they
+served here. At least, she had called it horse slop in the past. When
+she learned about food replication last semester, she had a different
+viewpoint of the cooks in the school. The meals were bland and blander;
+at least they were made to be that way, at least it was replicated by a
+computer. She assumed that the replicator food would taste worse, I
+mean, if it didn’t why would they be not using it all the way, all the
+time, you know? What she meant to think was, food replicators must be
+worse for children than hand-boiled soup every third day. Had to be,
+otherwise why would they underpay the kitchen staff to work their hands
+stiff making bread for the student body.
 
-She looked at the instructions again. Oh! She turned up the temperature
-on the burner another notch. The mixture became turquoise. She looked at
-the ebook again. The florid writing was preserved from the original text
-from over 400 years ago. Right around the time that Trekalia was first
-discovered. Research mages be researching maging, she guessed. She
-tapped on the ebook device with her sonic wand. The page turned into a
-turquoise color when she did so, which looked exactly like her mixture
-was now. Did she discover a new potion, or was this ebook rubbish. She
-decided to take the ebook and shake it up a bit. The same color change
-came to the picture of the potion on the page. Rubbish. But at least she
-was going to get better marks on this mixture.
+That was detention Harriet. Now we have to be dorm Harriet. Which is to
+say, quieter and less about sports statistics. It seems like none of her
+dorm mates had the brains for sports statistics. The only way that
+Harriet was getting though mathematics was through sports statistics.
+Physics was actually quite helpful in zero-g football, which is why she
+was finishing with extra good marks. Harriet was a single-minded person:
+if somehow a teacher could convince her that poetry of all things could
+relate to football; then maybe should would take an interest.
 
-“Professor Wickflit, this ebook is rubbish, I mean, broken slightly. The
-color’s all wrong.”
+Which is part of the reason that dorm Harriet always talked about
+something else. Anything else. Seriously. Ven-tika would always be the
+first to disrupt rookie assessments in the league, to talk about
+something, oh, stupid like the Rebellion. Those scumbags don’t deserve
+discussion, yet Ven would want to talk about them. If she thinks that I
+have an obsession, she gives me a run for my credits.
 
-Professor Wickflit looked up from examining another student’s
-microcauldron. “Ah, Miss Starr, let me take a look.” They came over to
-Harriet’s desk. “Ah, I see you got the color right! Nice work, Miss
-Starr.”
+Cyl Sapperstein was the first one to talk while they were making their
+beds. “What did you think of alchemistry, Ven?”
 
-“The book told me the wrong color. I had to shake it to get it to
-display right. The magic is off.”
+Ven looked at the ceiling with all three eyes. The fact that one of them
+was always looking just to the left of Harriet seems suspicious, at
+least to Harriet. But, no one will start that row. Best to listen to
+Cyl, she’s the best person to have bland conversations with, which is
+why she was friends with everybody. In such divisive times, wouldn’t it
+be nice to have someone as solid as Cyl? Plus, her blue skin and webbed
+ears were really a really nice change from all the other humans that
+lived in the school.
 
-“Well, we’ll put this in the bin for the Magitech department, and we’ll
-see that it doesn’t get fixed,” the professor smiled their little smile.
-“Meanwhile, did you turn it off and on again? I know that’s what the
-tech folk are going to say.” The professor then proceeded to laugh their
-little laugh. Not much of a laugh, more of a chortle. “Well, now, let’s
-take a look at yours, Mister Baker.”
+Exchange students were getting rarer and rarer these days. It must have
+something to do with the Rebellion, Harriet told herself. Probably
+something to do with them. Harriet was a lot of things, but she was not
+a hater. But she really didn’t like the Rebellion. Some of her
+classmates took it farther and, say that they would like to kill a rebel
+just to show them who’s really boss of the galaxy, us, that’s who.
+Harriet thought that went too far, she just wanted the Rebellion to stop
+killing people. Why don’t they just go back to where they come from?
 
-Using honorifics was an old affectation for Professor Wickflit. Normally
-Wickflit was the Classics Professor, but they were filling in for
-Professor Riish, who was the Alchemistry professor most of the time. At
-the beginning of the class, Wickflit said that Riish was out due to
-having a bad cold.
+Harriet would have written that in her diary, if she kept one. In lieu
+of that, she dug into the history book that she was supposed to have
+studied in detention but she just kept thinking about the injustice of
+the world. Obviously Professor Satti-Ding didn’t like her much, he has
+made that quite clear.
 
-Wait a moment, Harriet thought to herself. Wasn’t today’s class all
-about the cure for the cold? And Riish was an Alchemistry expert,
-shouldn’t she be able to cure herself? What the hell was up with that?
-Maybe she could ask the Professor about it after the bell chimed.
+If she didn’t have the rotten luck of sitting in the front, where she
+was easily noticed, she might escape that class alive. Grades couldn’t
+enter it, she just had to survive. Maybe her parents would understand if
+she formed a, well frankly, bad opinion of history. Not only was
+Professor Satti-Ding the history teacher, he happened to be her father’s
+favorite teacher of all school. They were close. Close enough that
+Professor Satti-Ding’s opinion rubbed off on her father’s opinion of
+her.
 
-Meanwhile, the potion she was working on started to bubble. She turned
-the heat off and started to prepare the potion for bottling, which was
-the standard procedure for these kinds of experiments. There was a
-secondary mark for how well your potion holds up on the shelf for a
-standard month. She hoped that her doesn’t get moldy again. That was
-embarrassing, and the mold started to have a personality and everything.
-She was going to name it Albert. It was a sad day when she had to
-destroy her son.
+Oh parents, how did she get along with them when she was younger?
+Harriet didn’t have a bad childhood, but it wasn’t without it’s
+difficulties. Her father’s opinion of her school work, for instance. He
+was a scholarly person. He valued what books said. Well, she valued what
+happened on the pitch. That’s where the real stuff happens. Things you
+can’t write down, you have to feel them in your body. That’s real, not
+things written down. Things written down are stupid. Stupid, stupid
+words. If she were any better at them, she’d be grateful, but she firmly
+believed that she could get through life without them. A lot of magic
+was done without words, the kind that was more about movements. That was
+what she was good at.
 
-Before she knew it, the bell was chiming. It was incessantly cheerful,
-she always thought. Oh good job, kids, you made it through drudgery, now
-you can walk through these hallways you’ve sadly memorized to your next
-assignment, your next class, your next test. Senioritis should have a
-cure in a bottle, because Harriet Starr had a really bad case of
-senioritis.
+When magic was like dancing, Harriet Starr was better at it than anyone.
+Or at least, that’s what she firmly believed. A great many of Harriet’s
+beliefs were as solid as durasteel. She built her personality around her
+opinions and beliefs, but didn’t everyone do the same thing? Otherwise,
+how would people have a functioning society?
 
-She approached Professor Wickflit. “Professor, excuse me please, but you
-said that Professor Riish had a cold?”
-
-“Why yes, she does. The most common of colds I’m afraid.”
-
-“Well, wasn’t our assignment the cure for the cold? Couldn’t she, you
-know, have brewed some up herself? I’m sorry to ask but I really like
-her and I want her to be well.”
-
-“Isn’t that nice?” Professor Wickflit patted her shoulder. “It turns out
-that her people don’t have the same blood as we do, which means that the
-cure isn’t going to work. Sorry to give you such bad news.”
-
-“That’s alright, Professor, thanks for explaining it to me,” Harriet bit
-her lip, “How long will she be out?”
-
-“Oh, it’s no telling what happens when aliens get our diseases. She
-might be out for a few days, or she may be out much, much longer.”
-
-Harriet noticed a change in Wickflit’s face. They seemed, well,
-preoccupied with some other thoughts.
-
-“Are you going to keep teaching us Alchemistry, Professor?”
-
-“I shouldn’t think so,” the Professor said, with a slightly glazed look
-on his face, “I’m sure a substitute will be here shortly. They are
-usually pretty good with the subs these days. Back in my day, we had to
-wait a week for a good substitute to show up. We got into such trouble
-then.” They smiled. “Now, run along now, Miss Starr, there’s a good
-girl.”
-
-Harriet readjusted her pack and started to walk out the door, turned to
-ask the Professor another question, then thought better of it. She had
-to go to her voice lessons, and Professor Xann didn’t like it when she
-was late.
+Things that were going on were starting to tell her that she was not
+exactly in a paradise though. Like, why didn’t anyone invent a better
+food replicator? Her mother would often tell her that was a silly
+question to ask when there were other things to worry about. But, like,
+Harriet was still a kid, you can’t expect a kid to have adult concerns.
+Not for another year any way. She was a senior in school, not a senior
+in a senior living center.
