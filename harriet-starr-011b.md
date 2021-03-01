@@ -46,4 +46,3 @@ survived, how did they have any rumors about them? If they were that
 deadly, why would they have any reputation whatsoever? Does that makes
 sense? Well, our heroes are going to survive an attack from the Sith and
 try to dispel some of those rumors, so lets’ go.
-
