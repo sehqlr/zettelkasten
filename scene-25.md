@@ -51,4 +51,3 @@ the scene, or even thinking about the scene, until later, when I can do
 some more research into how those pieces are written, so I can learn how
 to do it. Otherwise, I'm just guessing at what is exciting and that's
 not the way to go with this sort of thing at all.
-

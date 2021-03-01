@@ -1,11 +1,11 @@
 ---
-date: 2020-11-24T21:35
+date: 2021-03-01T17:14
 tags:
-- scene/13
+- harriet-starr
+- note
 ---
 
-Chapter 13
-==========
+# Computers
 
 So, are there computers in the magical space future we find ourselves
 in? I believe so, but it's complicated. You see, because conventional
@@ -23,4 +23,3 @@ weren't able to truly solve it. However, a lot of new algorithm were
 possible with magic. Some problems are still better suited by being
 solved with quantum chips, but those are a part of classical systems,
 not supplanted by them. 
-

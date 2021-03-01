@@ -1,11 +1,11 @@
 ---
-date: 2020-11-24T21:33
+date: 2021-03-01T17:12
 tags:
-- scene/11
+- harriet-starr
+- note
 ---
 
-Chapter 11
-==========
+# Droid Teachers
 
 I think that the observation about droid teachers and that sort of thing
 is a socioeconomic status thing. Everyone is guaranteed a right to an
@@ -21,4 +21,3 @@ scores program, but they were both impressed that Harriet was able to
 get most of the work done by herself. If only this was a school
 assignment, every assignment. Then Harriet would have no trouble going
 pro.
-
