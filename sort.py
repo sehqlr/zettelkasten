@@ -13,6 +13,6 @@ names = sorted(names)
 enumerated = enumerate(names)
 
 for idx, name in enumerated:
-    new_name = "harriet-starr-scene-{:03}.md".format(idx)
+    new_name = "harriet-starr-{:03}.md".format(idx)
     print(f"Renaming {name} to {new_name}")
     rename(name, new_name)
